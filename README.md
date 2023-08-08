@@ -1,5 +1,5 @@
 WSG? I'm MereTez, Call me Tez.
-I have interest to Web Designer
+I have interest to Web Developing
 I'm currently learning HTML, CSS, and Basic JS.
 I'm looking for collaboration.
 You can message me on my email hirokanimation@gmail.com
